@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with vip king legacy Scripts, the #1 Script. Includes one-hit kill and auto-upgrade for unbeatable
 
 
 
